@@ -12,7 +12,7 @@ I very often gaze stars, hoping to be interplanetary and optimistic about humani
 
 　🛸 　🛰　· ☄ 🌎°°　　 ☄　•🌓　 🛰　　 　　  🌙*　　　★ 🌓•　°　　 　 *°　 　°  　 🪐 ✯°　 　　 . .🚀 ° 🌎　　　　·•
 
-I also believe that our curiosity will take us beyond this blue horizon, and we will carry our our stories of Human Endurance, Suffering, Resilience, Humanely Love, Ethics and most importantly human values to yet another planet. 
+I also believe that our curiosity will take us beyond this blue horizon, and we will carry our stories of Human Endurance, Suffering, Resilience, Humanely Love, Ethics and most importantly human values to yet another planet. 
 
 We must thrive to expand as far and wide as we possibly can to ensure that the fire of humanity can burn brighter eons, may human sacrifices never be forgetten as they fuel us to stars ✨
 
