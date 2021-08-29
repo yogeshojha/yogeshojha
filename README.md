@@ -4,6 +4,8 @@
 
 I am a Research Engineer at [TRG Research and Development](https://www.trgint.com/) and creator of reNgine. You can find most of my open-source contributions in [reNgine](https://github.com/yogeshojha/rengine).
 
+I often do software, sometimes hardware and a lot of security.
+
 When not infront of computers, I do Jiu-Jitsu and Mixed Martial Arts. 
 
 I very often gaze stars, hoping to be interplanetary and optimistic about humanity's future among the stars. 
