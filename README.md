@@ -6,7 +6,7 @@ I am a Research Engineer at [TRG Research and Development](https://www.trgint.co
 
 I often do software, sometimes hardware and a lot of security.
 
-When not infront of computers, I do Jiu-Jitsu and Mixed Martial Arts. 
+When not infront of computers, I am probably running or doing half-marathons. 
 
 I very often gaze stars, hoping to be interplanetary and optimistic about humanity's future among the stars. 
 
