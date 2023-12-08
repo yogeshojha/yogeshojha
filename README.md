@@ -6,7 +6,7 @@ I am a Research Engineer at [TRG Research and Development](https://www.trgint.co
 
 I often do software, sometimes hardware, and a lot of security.
 
-When not in front of computers, I am probably running or doing half-marathons. 
+I am deeply passionate about running, when not in-front of computers, I am probably running or signing up for my next race ;p
 
 I very often gaze at stars, hoping to be interplanetary and optimistic about humanity's future among the stars. 
 
